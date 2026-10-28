@@ -31,6 +31,8 @@ Oral Presantation & Demo - 5%
 Early & Sustained Engagement - 10%
 Independent Learning & Initiative - 10%
 
+Meetings will be bimonthly, with the next meeting scheduled for November 3rd (week 9).
+
 
 ## Feedback received:
 ## Action items:
